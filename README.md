@@ -1,0 +1,1 @@
+# Project_NG_2023_Vlad_Osadchiy_novel-engine
